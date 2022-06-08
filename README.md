@@ -1,0 +1,1 @@
+# Accettanza-geometrica
